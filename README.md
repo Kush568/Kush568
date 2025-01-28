@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Kush568
+- 👀 I’m interested in AI
