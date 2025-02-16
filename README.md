@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @Kush568
+- 👋 Hi, I’m Kush
 - 👀 I’m interested in AI
